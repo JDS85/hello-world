@@ -16,4 +16,4 @@ So keep trying, keep pushing forward, keep going. Then when you're done, continu
 
 -- Jose D. Sanchez
 
-[^1}:I lied, the guy did seem a bit insane at some points. I just couldn't throw the baby out with the bath water.:sweat_smile:
+[^1]:I lied, the guy did seem a bit insane at some points. I just couldn't throw the baby out with the bath water.:sweat_smile:
